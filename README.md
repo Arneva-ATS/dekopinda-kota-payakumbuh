@@ -1,1 +1,1 @@
-# dekopinda-kota-payakumbuh
+# dekopinda-karanganyar
